@@ -7,6 +7,6 @@ alxter~
 — “Time is like a river; when you think you can’t cross it, it’s already reached the horizon in the blink of an eye, and when you think you’ve crossed it, it’s still flowing downstream within you.”
 
 — “We’ve all grown up, made one mistake, and before we know it, it’s almost twilight.”
-**atlxter/atlxter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 -->   need friend <3
