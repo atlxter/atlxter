@@ -1,6 +1,6 @@
 alxter~
 
-![8b82ed7ae785f50ac6d31459159d37f8](https://github.com/user-attachments/assets/e69fe37e-9ac0-46cb-83c1-3cef2880453c)
+![59058a4382041194ce1918a6e4cc70b1](https://github.com/user-attachments/assets/0168af5f-ac2b-4cb3-a92b-37a32c730636)
 
  We all change, calmly, silently, wearily, and sorrowfully.
 
@@ -9,4 +9,4 @@ alxter~
 — “We’ve all grown up, made one mistake, and before we know it, it’s almost twilight.”
 
 
--->   need friend <3
+--> callmekei/lx
