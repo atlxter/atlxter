@@ -1,6 +1,6 @@
 alxter~
 
-![c3b5a691297fc65bd259e7f7c8deeb6b](https://github.com/user-attachments/assets/b0efcbe0-14e5-421d-a7f3-944473bc9284)
+![4](https://github.com/user-attachments/assets/ba11968a-b199-4b52-b145-cd9fdab08ca5)
 
  We all change, calmly, silently, wearily, and sorrowfully.
 
