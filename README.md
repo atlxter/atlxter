@@ -2,11 +2,15 @@
 ![9cf00d7e6a1973607e84a77a334bdcab](https://github.com/user-attachments/assets/161687fd-fa69-4af0-bacd-e5e166de6148)
 
 Trao đổi trực tiếp đừng dài dòng ở những vấn đề bạn thắc mắc ở tôi?
-Tôi là kiểu người đề cao chủ quyền cá nhân và luôn nói thẳng những gì cần nói. Riêng tư và quyền lợi của bản thân là giới hạn mà tôi không cho phép ai vượt qua. Tính cách tôi có thể bị xem là kì quặc, khó hiểu, nhưng ít nhất tôi không giả tạo hay vòng vo. Nếu bạn có ý xúc phạm, hoặc nói xấu sau lưng, tôi sẽ không im lặng;tôi sẵn sàng đối chất trực tiếp, rõ ràng, không né tránh. Tôi không thích những cuộc nói chuyện vô nghĩa, không thích vòng vo hay giả vờ thân thiện. Vào thẳng vấn đề, nói chuyện như những người trưởng thành;đó là cách tôi tồn tại. Những người từng phản bội tôi, xin đừng quay lại, cũng đừng cố gắng chen vào cuộc sống của tôi thêm lần nào nữa. Và nếu skin của bạn giống tôi đến 80–90%, đừng tỏ ra ngạc nhiên khi tôi nhắn hỏi—tôi không thích sự trùng lặp, và càng không chấp nhận việc bị sao chép mà không có lời giải thích rõ ràng.
+Tôi là kiểu người đề cao chủ quyền cá nhân và luôn nói thẳng những gì cần nói. Riêng tư và quyền lợi của bản thân là giới hạn mà tôi không cho phép ai vượt qua. Tính cách tôi có thể bị xem là kì quặc, khó hiểu, nhưng ít nhất tôi không giả tạo hay vòng vo. Nếu bạn có ý xúc phạm, hoặc nói xấu sau lưng, tôi sẽ không im lặng;tôi sẵn sàng đối chất trực tiếp, rõ ràng, không né tránh. Tôi không thích những cuộc nói chuyện vô nghĩa, không thích vòng vo hay giả vờ thân thiện. Vào thẳng vấn đề, nói chuyện như những người trưởng thành;đó là cách tôi tồn tại. Những người từng phản bội tôi, xin đừng quay lại, cũng đừng cố gắng chen vào cuộc sống của tôi thêm lần nào nữa. Và nếu skin của bạn giống tôi đến 80–90%, đừng tỏ ra ngạc nhiên khi tôi nhắn hỏi;tôi không thích sự trùng lặp, và càng không chấp nhận việc bị sao chép mà không có lời giải thích rõ ràng.
 ;
 
 
 
 
 I’m the type who values personal boundaries & sovereignty above all. I speak straight, no sugarcoating, no fake energy. My privacy & my rights come first ; always. Yeah, my personality might seem weird or hard to read, but at least I’m real, not putting on a mask for anyone. If you throw shade at me or talk behind my back, don’t expect silence ; I’ll confront you directly, no hesitation. I don’t do pointless convos, no small talk, no going in circles. Get straight to the point, like grown ppl do.
-People who betrayed me before? Don’t come back, don’t text, don’t even try ; I’m not interested. Respect the distance. And one more thing — if your skin looks 80–90% like mine, don’t act surprised when I dm you abt it. I don’t fw copy-paste behavior, and I definitely won’t ignore it without an explanation.
+People who betrayed me before? Don’t come back, don’t text, don’t even try ; I’m not interested. Respect the distance. And one more thing ; if your skin looks 80–90% like mine, don’t act surprised when I dm you abt it. I don’t fw copy-paste behavior, and I definitely won’t ignore it without an explanation.
+
+
+Và đừng đỗ lỗi cho tôi khi chưa có bằng chứng:))):))).
+-
