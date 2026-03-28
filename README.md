@@ -1,6 +1,5 @@
 
-
-![212](https://github.com/user-attachments/assets/840b6f91-0913-4ba6-937f-5ebc5226675f)
+![6c9aa9a3d72560d31caf64c90db259ee](https://github.com/user-attachments/assets/b95c174f-02d5-43bd-8cd7-866be270b64d)
 
 
 Trao đổi trực tiếp đừng dài dòng ở những vấn đề bạn thắc mắc ở tôi?
@@ -9,14 +8,13 @@ Tôi là kiểu người đề cao chủ quyền cá nhân và luôn nói thẳn
 
 
 
-![e2f1222acff5c24e58a4ca008658c4a0](https://github.com/user-attachments/assets/e4257c18-461d-4858-b5c0-a44b1496395c)
+
 
 
 I’m the type who values personal boundaries & sovereignty above all. I speak straight, no sugarcoating, no fake energy. My privacy & my rights come first ; always. Yeah, my personality might seem weird or hard to read, but at least I’m real, not putting on a mask for anyone. If you throw shade at me or talk behind my back, don’t expect silence ; I’ll confront you directly, no hesitation. I don’t do pointless convos, no small talk, no going in circles. Get straight to the point, like grown ppl do.
 People who betrayed me before? Don’t come back, don’t text, don’t even try ; I’m not interested. Respect the distance. And one more thing ; if your skin looks 80–90% like mine, don’t act surprised when I dm you abt it. I don’t fw copy-paste behavior, and I definitely won’t ignore it without an explanation.
 
 
-![f9915e40cae708d12824c06ec3acadbf](https://github.com/user-attachments/assets/f4041e11-e56e-4ba5-95f0-5132b9ce61c0)
 
 
 Và đừng đỗ lỗi cho tôi khi chưa có bằng chứng:))):))).
