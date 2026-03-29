@@ -1,21 +1,17 @@
 
-![6c9aa9a3d72560d31caf64c90db259ee](https://github.com/user-attachments/assets/b95c174f-02d5-43bd-8cd7-866be270b64d)
-
-
-Trao đổi trực tiếp đừng dài dòng ở những vấn đề bạn thắc mắc ở tôi?
-Tôi là kiểu người đề cao chủ quyền cá nhân và luôn nói thẳng những gì cần nói. Riêng tư và quyền lợi của bản thân là giới hạn mà tôi không cho phép ai vượt qua. Tính cách tôi có thể bị xem là kì quặc, khó hiểu, nhưng ít nhất tôi không giả tạo hay vòng vo. Nếu bạn có ý xúc phạm, hoặc nói xấu sau lưng, tôi sẽ không im lặng;tôi sẵn sàng đối chất trực tiếp, rõ ràng, không né tránh. Tôi không thích những cuộc nói chuyện vô nghĩa, không thích vòng vo hay giả vờ thân thiện. Vào thẳng vấn đề, nói chuyện như những người trưởng thành;đó là cách tôi tồn tại. Những người từng phản bội tôi, xin đừng quay lại, cũng đừng cố gắng chen vào cuộc sống của tôi thêm lần nào nữa. Và nếu skin của bạn giống tôi đến 80–90%, đừng tỏ ra ngạc nhiên khi tôi nhắn hỏi;tôi không thích sự trùng lặp, và càng không chấp nhận việc bị sao chép mà không có lời giải thích rõ ràng.
-;
+![3afb5680d1629a6381673ec78bdd8913](https://github.com/user-attachments/assets/963aa49a-03a7-4a38-bbdb-bbb4361950b9)
 
 
 
+Tôi vẫn cho rằng thế giới này không tồn tại vĩnh hằng, nếu không phải là vĩnh hằng, thì vũ trụ vĩnh hằng chính là — tất cả mọi thứ trên đời này đều sẽ biến mất theo thời gian.
 
+Cho dù đó là một đoạn tình cảm, hay một lời thề; là một ngọn núi, hay một khoảng biển; thậm chí là địa cầu của chúng ta, mặt trời chiếu rọi chúng ta mỗi ngày, hay tất cả vũ trụ này, chỉ cần có đủ thời gian, đều sẽ có chung một kết cục chính là biến mất.
 
+Nếu ngay cả mặt trời, vũ trụ tưởng như vĩnh hằng gì gì đó, đều cũng có thể biến mất theo thời gian, vậy đoạn tình cảm nhỏ bé không đáng nhắc tới của tôi tính là gì chứ?
 
-I’m the type who values personal boundaries & sovereignty above all. I speak straight, no sugarcoating, no fake energy. My privacy & my rights come first ; always. Yeah, my personality might seem weird or hard to read, but at least I’m real, not putting on a mask for anyone. If you throw shade at me or talk behind my back, don’t expect silence ; I’ll confront you directly, no hesitation. I don’t do pointless convos, no small talk, no going in circles. Get straight to the point, like grown ppl do.
-People who betrayed me before? Don’t come back, don’t text, don’t even try ; I’m not interested. Respect the distance. And one more thing ; if your skin looks 80–90% like mine, don’t act surprised when I dm you abt it. I don’t fw copy-paste behavior, and I definitely won’t ignore it without an explanation.
-
-
-
-
-Và đừng đỗ lỗi cho tôi khi chưa có bằng chứng:))):))).
+Tôi tin tưởng, chỉ cần tôi có đầy đủ thời gian, tôi sẽ khiến nó biến mất hoàn toàn.
 -
+
+
+
+
