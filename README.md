@@ -22,5 +22,5 @@
 
 
 ◟
-<img width="736" height="736" alt="SnapBG ai_1774964126476" src="https://github.com/user-attachments/assets/5aa2918d-e218-487d-ab5d-3b30204c4d8e" />
+
 
