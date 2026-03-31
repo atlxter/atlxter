@@ -1,6 +1,26 @@
+                 /\____/\
+               > •       •    <      
 
 
-<img width="705" height="1280" alt="SnapBG ai_1774963516218" src="https://github.com/user-attachments/assets/b3a132ae-7f9d-4d95-92cd-d463aa52207b" />
+✦
+
+![3c6de37c0db250fa40f5c936ed1b28c5](https://github.com/user-attachments/assets/de486745-a708-4b83-b143-653fb6d314c4)
 
 
+
+꒰ㅤTooth / Cake ౨ৎㅤ꒱
+
+
+
+ㅤㅤㅤhe/him  lol;  ✚  16y . 🥐☕️
+
+
+
+ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ♡
+
+
+
+
+◟
+<img width="736" height="736" alt="SnapBG ai_1774964126476" src="https://github.com/user-attachments/assets/5aa2918d-e218-487d-ab5d-3b30204c4d8e" />
 
