@@ -2,13 +2,17 @@
                > •       •    <      
 
 
+
+
+<img width="902" height="1280" alt="ff380f7eae4c14236cfa01095b06a8db-Photoroom" src="https://github.com/user-attachments/assets/d011b9f9-2ac6-433f-aa80-8710700390f1" />
+
+
+
 ✦
 
-![3c6de37c0db250fa40f5c936ed1b28c5](https://github.com/user-attachments/assets/de486745-a708-4b83-b143-653fb6d314c4)
 
 
-
-꒰ㅤTooth / Cake ౨ৎㅤ꒱
+꒰ㅤTooth / Cake ꒱
 
 
 
@@ -16,7 +20,7 @@
 
 
 
-ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ♡
+ㅤㅤㅤ𐔌ྀ ‧ ㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ♡
 
 
 
