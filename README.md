@@ -1,5 +1,5 @@
                  /\____/\
-               > •       •    <      
+               > alexithymia <      
 
 
 
@@ -8,7 +8,7 @@
 
 
 
-<img width="2560" height="3616" alt="☀️5" src="https://github.com/user-attachments/assets/286ed962-5d54-4c89-b032-f3206cc93473" />
+![55d32af3e1c224f3c10e59160a5cef5d](https://github.com/user-attachments/assets/2eef565f-0266-4ce6-979c-52fcd4cabf3c)
 
 
 ✦
@@ -18,11 +18,11 @@
 
 
 
-ㅤㅤㅤhe/him  lol;  ✚  16y . 🥐☕️
+ㅤㅤㅤhe/him  lol;  ✚  16y . 
 
 
 
-ㅤㅤㅤ𐔌ྀ ‧ ㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ♡
+ㅤㅤㅤ𐔌ྀ ‧ ㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ
 
 
 
