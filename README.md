@@ -1,3 +1,4 @@
+
                  /\____/\
                > alexithymia <      
 
@@ -8,21 +9,21 @@
 
 
 
-![55d32af3e1c224f3c10e59160a5cef5d](https://github.com/user-attachments/assets/2eef565f-0266-4ce6-979c-52fcd4cabf3c)
+<img width="1199" height="1697" alt="ead7aea19437f73f0cfd93fb19764463-Photoroom" src="https://github.com/user-attachments/assets/969d3b32-708d-4a6d-9c69-b8361bd99da7" />
 
 
 ✦
 
 
-꒰ㅤTooth / Cake ꒱
+ㅤTooth / Cake 
 
 
 
-ㅤㅤㅤhe/him  lol;  ✚  16y . 
+ㅤㅤㅤhe/him  lol;    16y . 
 
 
 
-ㅤㅤㅤ𐔌ྀ ‧ ㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ
+ㅤㅤ ‧ ㅤĐề cao nhân quyền  / ?  tính riêng tư cá nhânㅤ
 
 
 
