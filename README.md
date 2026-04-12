@@ -3,8 +3,7 @@ alt="visitors"> </h1>
 
 
 
-
-
+　　　　 　 ‍ ‍ ‍ ‍ 　　　　 　　　　　　　　　　　　,　　 　 .　　　　　　　　　　　　　.　　　ﾟ　 　　　　　 　 ‍ ‍ ‍ ‍ 　　　　 　　　　　　　　　　　　,　　 　 .　　　　　　　　　　　　　.　　　ﾟ　 　
 [zyo.lol](https://zyo.lol/alxter). ヘ.   ⁠。
 [signata><](https://atlxter.atabook.org/) .   ヘ . '
 [tiktok!!!](https://www.tiktok.com/@nkhangg12._?_r=1&_t=ZS-95Tp83JRTXh)
