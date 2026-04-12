@@ -1,4 +1,12 @@
-<h1 align="center"><img src="https://komarev.com/ghpvc/?username=atlxter&color=170D36&style=for-the-badge&label=Tooth+><"
+<h1 align="center"><img src="https://komarev.com/ghpvc/?username=atlxter&color=140D26&style=for-the-badge&label=tooth+!!"
+
+
+
+
+
+
+
+
 
 “Ta lại nói cùng các ngươi: Hãy xin, sẽ ban cho; hãy tìm, sẽ gặp; hãy gõ cửa, sẽ mở cho. Vì hễ ai xin thì được, ai tìm thì gặp, và sẽ mở cửa cho ai gõ.”
 
