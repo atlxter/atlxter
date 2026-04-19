@@ -4,7 +4,7 @@ alt="visitors"> </h1>
 
 　　　　 　 ‍ ‍ ‍ ‍ 　　　　
  [zyolol](https://zyo.lol/alxter) .
-[signata><](https://atlxter.atabook.org/) .  [tiktok!!!](https://www.tiktok.com/@nkhangg12._?_r=1&_t=ZS-95Tp83JRTXh)'
+[signata><](https://atlxter.atabook.org/) .  [tiktok!!!](https://www.tiktok.com/@nkhangg12._?_r=1&_t=ZS-95Tp83JRTXh)' [rentry.co](https://rentry.co/atlxter)
 
 
 
