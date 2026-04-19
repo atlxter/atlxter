@@ -1,3 +1,4 @@
+
 <h1 align="center"><img src="https://komarev.com/ghpvc/?username=atlxter&color=fae06e&style=for-the-badge&label=ihatemyself+!!"
 alt="visitors"> </h1>
 　　　 　 
@@ -26,7 +27,7 @@ alt="visitors"> </h1>
 
 ㅤㅤ ‧ ㅤㅤ
 
-<img width="681" height="681" alt="d56e740adffee50b0ef8f498b5b2d76d-Photoroom" src="https://github.com/user-attachments/assets/987397d5-4faa-44dd-b392-d26ed32342d1" />
+<img width="736" height="414" alt="8c77cb66a0419550e6267622b1ea8677-Photoroom" src="https://github.com/user-attachments/assets/db1e208e-8cc8-4afb-950e-3697aea0cddd" />
 
 
 
