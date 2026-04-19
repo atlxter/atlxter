@@ -18,7 +18,6 @@ alt="visitors"> </h1>
 
 
 
-✦
 
 
 
@@ -27,7 +26,14 @@ alt="visitors"> </h1>
 
 ㅤㅤ ‧ ㅤㅤ
 
-<img width="736" height="414" alt="8c77cb66a0419550e6267622b1ea8677-Photoroom" src="https://github.com/user-attachments/assets/db1e208e-8cc8-4afb-950e-3697aea0cddd" />
+
+
+
+
+
+ㅤㅤ ‧ ㅤ
+
+   <img width="400" height="307" alt="d0d6f4c24520d4148177cfd4d1289616" src="https://github.com/user-attachments/assets/1c834677-48e0-4734-87ce-69aad969ed5a" />
 
 
 
