@@ -1,5 +1,5 @@
 
-<h1 align="center"><img src="https://komarev.com/ghpvc/?username=atlxter&color=fae06e&style=for-the-badge&label=ihatemyself+!!"
+<h1 align="center"><img src="https://komarev.com/ghpvc/?username=atlxter&color=292836&style=for-the-badge&label=Miss+!!"
 alt="visitors"> </h1>
 　　　 　 
 
