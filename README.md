@@ -11,7 +11,7 @@ alt="visitors"> </h1 ‍ ‍ 　　　　
 
 
   
-                                                                                                 [zyo](https://zyo.lol/alxter) ; [straw](https://atlxter.straw.page) ; [ata](https://atlxter.atabook.org/) ; [rentry](https://rentry.co/atlxter)
+                                                                                        [𝒁𝒀𝑶](https://zyo.lol/alxter) _ [𝑺𝑻𝑹𝑨𝑾](https://atlxter.straw.page) _ [𝑨𝑻𝑨𝑩𝑶𝑶𝑲](https://atlxter.atabook.org/)  
 
 <p align="center">
   <a href="[https://github.com/atlxter/spotify-github-profile]">
@@ -20,7 +20,7 @@ alt="visitors"> </h1 ‍ ‍ 　　　　
 
 
 ㅤㅤ
-                                                           <img width="500" height="500" alt="c7a30cd933077bcb08f18e19b8fde70e-removebg-preview" src="https://github.com/user-attachments/assets/8b705cb5-3b07-427f-9846-734dbb629378" />
+                                                           <img width="404" height="617" alt="4c74e655dfe6f0c7f9d8b823d84cc30f-removebg-preview" src="https://github.com/user-attachments/assets/aa1aa914-6fe6-4c65-9dac-d42f23ee8f30" />
 
 
 
