@@ -20,8 +20,7 @@ alt="visitors"> </h1 ‍ ‍ 　　　　
 
 
 ㅤㅤ
-                                                           <img width="404" height="617" alt="4c74e655dfe6f0c7f9d8b823d84cc30f-removebg-preview" src="https://github.com/user-attachments/assets/aa1aa914-6fe6-4c65-9dac-d42f23ee8f30" />
-
+                                                          
 
 
 
