@@ -11,7 +11,7 @@ alt="visitors"> </h1 ‍ ‍ 　　　　
 
 
   
-                                                                                        [𝒁𝒀𝑶](https://zyo.lol/alxter) _ [𝑺𝑻𝑹𝑨𝑾](https://atlxter.straw.page) _ [𝑨𝑻𝑨𝑩𝑶𝑶𝑲](https://atlxter.atabook.org/)  
+                                                                                                [𝒁𝒀𝑶](https://zyo.lol/alxter) - [𝑺𝑻𝑹𝑨𝑾](https://atlxter.straw.page) - [𝑨𝑻𝑨𝑩𝑶𝑶𝑲](https://atlxter.atabook.org/)  
 
 <p align="center">
   <a href="[https://github.com/atlxter/spotify-github-profile]">
